@@ -1,2 +1,2 @@
 # gvp1
-Get Great Felling an Great vibes
+**Get Great Feeling and Great Vibes**
